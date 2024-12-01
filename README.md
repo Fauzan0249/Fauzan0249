@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Fauzan
+- 👀 I’m interested in forensic medicine
